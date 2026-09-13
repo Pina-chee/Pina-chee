@@ -37,7 +37,8 @@
 * **touching:** Don’t mind at all! 
 * **booping:** ok / don’t really care and I’ll probably boop back if I’m not afk
 * **whispering:** ofc/ pls do if I’m afk (might not respond straight away, sorry!).
-* **dni if:** basic dni criteria / if you are toxic 
+* **dni if:** basic dni criteria / if you are toxic
+* Also, I usually reply dryly or really short cause I don’t know how to respond most of the time, sozz:< 
 
 ---
 
