@@ -6,7 +6,8 @@
 <img src="https://fsh.at" alt="Now Playing" width="380">
 
 <br>
-<img src="https://demolab.com" alt="Typing SVG" />
+<img width="1056" height="1019" alt="image" src="https://github.com/user-attachments/assets/23c5b357-c1e8-4154-9092-da474c927b23" />
+
 
 ### 🌴 🐡 🐚 🫧 🥥
 *“You know those stonefish that look like a rock and shoot enough poison to kill a football team? She reminds me of one...”*
@@ -17,12 +18,16 @@
 
 ###  🫧🎼 `ABOUT ME` 🐑💿
 > *FIFTEEN, idm how old you are as long as you’re 13+!* <
-> *Also, I am afk/ sleeping a LOT so if I don’t respond, js send me a whisper!* ^^
-> I draw a lot, I’m not really that good at digital drawing, I also suck at baking nd burn the kitchen down every time! ^^
+> *Also, I am afk/ sleeping a LOT so if I don’t respond, js send me a whisper!*
+> I draw a lot, I’m not really that good at digital drawing, I’m alr at baking<
 > PRONOUNS: He/ him but I honestly couldn’t care less what pronouns you give me <33
 
+<img width="1150" height="1500" alt="image" src="https://github.com/user-attachments/assets/6992ba27-13d0-4356-b371-a5f3aa67d35d" />
+
+
+
 🌈🎨**Fav colours:** any shade of pink, white, blacks, dark reds, greens and blues, neon green and any neutral colour
-🫧🐴 **pony town status:** afk/ making skins. 
+🫧🐴 **pony town status:** afk/ making skins. STILL not amazing at making skins so I just whack stuff together and hope for the best 😿
 
 <img src="https://demolab.com✦+AYESHA+EROTICA+VIBES+✦;✦+SKIN+MAKER+✦;✦+WELCOME+TO+MY+PONY+✦" alt="Typing SVG" />
 
