@@ -11,6 +11,8 @@
 ### 🌴 🐡 🐚 🫧 🥥
 *“You know those stonefish that look like a rock and shoot enough poison to kill a football team? She reminds me of one...”*
 
+<img width="1284" height="1270" alt="image" src="https://github.com/user-attachments/assets/584c8d4b-8cb8-4a36-b7f2-9a2b00d7d33c" />
+
 ---
 
 ###  🫧🎼 `ABOUT ME` 🐑💿
